@@ -13,7 +13,7 @@ ________________________________________________________________________________
 
 ⋆ I can be "intrusive" if we like the same things, I'm sorry about that. And I can yap a lot about certain topics in my fandoms (eek).
 
-⋆ I'm a "multishipper", by that I mean I accept all ships as long as they're not illegal, nor, toxic for both of the characters. I do accept talkinh about ships and hearing people opinions about each of them !
+⋆ I'm a "multishipper", by that I mean I accept all ships as long as they're not illegal, nor, toxic for both of the characters. I do accept talking about ships and hearing people opinions about each of them !
 
 ⋆ To know, I'm not english ! So if I make any wrong sentence or correct myself, its normal.
 
