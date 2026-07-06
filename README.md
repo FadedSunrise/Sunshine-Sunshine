@@ -5,13 +5,15 @@ ________________________________________________________________________________
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/35204b54-ad84-4b80-89c3-64546e956482" />
 
 
-⋆ Firstly, it's possible I'm still discovering the world of "fandoms." Let's just say I only officially joined "recently." (Before, I was just a fan in the shadows.)
+⋆ Firstly, Hi ! I'm Sunrise, but please, if friends, call me Sun. I'm a major of 21 years old.
 
 ⋆ I mainly stay into Hypnosis mic and Paradox live fandoms, but I don't mind to discover new fandoms or universes !
 
 ⋆ I don't mind the C+H or the talking as long as you're not harsh. otherwise I'll walk away !
 
 ⋆ I can be "intrusive" if we like the same things, I'm sorry about that. And I can yap a lot about certain topics in my fandoms (eek).
+
+⋆ I'm a "multishipper", by that I mean I accept all ships as long as they're not illegal, nor, toxic for both of the characters. I do accept talkinh about ships and hearing people opinions about each of them !
 
 ⋆ To know, I'm not english ! So if I make any wrong sentence or correct myself, its normal.
 
