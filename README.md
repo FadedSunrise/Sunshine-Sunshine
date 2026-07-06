@@ -2,6 +2,8 @@
 . 𝒜 symbol of hope left in the skies. Two soulmates, gazing into each other's eyes. Two mirrors facing one another, reflecting eternity.
 
 ____________________________________________________________________________________
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/35204b54-ad84-4b80-89c3-64546e956482" />
+
 
 ⋆ Firstly, it's possible I'm still discovering the world of "fandoms." Let's just say I only officially joined "recently." (Before, I was just a fan in the shadows.)
 
@@ -19,7 +21,12 @@ ________________________________________________________________________________
 
 ⋆ Know that I'm in a serious and long-term relationship with a woman, so don't be too weird, otherwise I'll simply ignore you when I find its too much.
 
-⋆ Here's for more informations about myself and my fandoms !
+⋆ I actually do some art, I can be harsh on myself don't mind it thats how I work. And I do all other fun stuff !
+
+⋆ Here's for more informations about myself and my fandoms ! ~ ♡
 
 ↳ https://meet-sunrise.carrd.co/
-(Or) https://sunriise.straw.page/
+(Or/And) https://sunriise.straw.page/
+
+<img width="1200" height="659" alt="image" src="https://github.com/user-attachments/assets/477c1d76-8d8c-474d-80a9-e1018804229d" />
+
