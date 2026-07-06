@@ -21,7 +21,7 @@ ________________________________________________________________________________
 
 ⋆ Know that I'm in a serious and long-term relationship with a woman, so don't be too weird, otherwise I'll simply ignore you when I find its too much.
 
-⋆ I actually do some art, I can be harsh on myself don't mind it thats how I work. And I do all other fun stuff !
+⋆ I actually do some art and ringing/animations for fun ! I can be harsh on myself, don't mind it that's how I work. And I do all other fun stuff !
 
 ⋆ Here's for more informations about myself and my fandoms ! ~ ♡
 
