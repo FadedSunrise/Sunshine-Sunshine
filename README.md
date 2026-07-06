@@ -28,5 +28,5 @@ ________________________________________________________________________________
 ↳ https://meet-sunrise.carrd.co/
 (Or/And) https://sunriise.straw.page/
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/c4665f32-74bc-4d73-9286-495d41bbaa36" />
+<img width="1200" height="401" alt="image" src="https://github.com/user-attachments/assets/5e60de4d-6ca8-4fd1-87e5-60f291a165d4" />
 
