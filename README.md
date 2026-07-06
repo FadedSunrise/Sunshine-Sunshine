@@ -15,7 +15,7 @@ ________________________________________________________________________________
 
 ⋆ I'm a "multishipper", by that I mean I accept all ships as long as they're not illegal, nor, toxic for both of the characters. I do accept talking about ships and hearing people opinions about each of them !
 
-⋆ To know, I'm not english ! So if I make any wrong sentence or correct myself, its normal.
+⋆ To know, I'm not english ! So if I make any wrong sentence or correct myself, its normal. I accept gladly person who wants to learn French ! I can give help and all.
 
 ⋆ I accept every country, so don't hesitate (as long as you're not harsh, like always).
 
