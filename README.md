@@ -1,5 +1,5 @@
 # Sunshine-Sunshine
-. 𝒜 symbol of hope left in the skies. Two soulmates, gazing into each other's eyes. Two mirrors facing one another, reflecting eternity.
+## . 𝒜 symbol of hope left in the skies. Two soulmates, gazing into each other's eyes. Two mirrors facing one another, reflecting eternity.
 
 ____________________________________________________________________________________
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/35204b54-ad84-4b80-89c3-64546e956482" />
