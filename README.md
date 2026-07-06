@@ -1,16 +1,25 @@
 # Sunshine-Sunshine
 . 𝒜 symbol of hope left in the skies. Two soulmates, gazing into each other's eyes. Two mirrors facing one another, reflecting eternity.
 
-Firstly, it's possible I'm still discovering the world of "fandoms." Let's just say I only officially joined "recently." (Before, I was just a fan in the shadows.)
+____________________________________________________________________________________
 
-I mainly stay into Hypnosis mic and Paradox live fandoms, but I don't mind to discover new fandoms or universes !
+⋆ Firstly, it's possible I'm still discovering the world of "fandoms." Let's just say I only officially joined "recently." (Before, I was just a fan in the shadows.)
 
+⋆ I mainly stay into Hypnosis mic and Paradox live fandoms, but I don't mind to discover new fandoms or universes !
 
+⋆ I don't mind the C+H or the talking as long as you're not harsh. otherwise I'll walk away !
 
+⋆ I can be "intrusive" if we like the same things, I'm sorry about that. And I can yap a lot about certain topics in my fandoms (eek).
 
+⋆ To know, I'm not english ! So if I make any wrong sentence or correct myself, its normal.
 
+⋆ I accept every country, so don't hesitate (as long as you're not harsh, like always).
 
-Here's for more informations about myself and my fandoms !
+⋆ Its possible that I'm usually afk when alone on ponytown too, so wait or walk away if I'm too long... You can still mp me whenever you want.
+
+⋆ Know that I'm in a serious and long-term relationship with a woman, so don't be too weird, otherwise I'll simply ignore you when I find its too much.
+
+⋆ Here's for more informations about myself and my fandoms !
 
 ↳ https://meet-sunrise.carrd.co/
 (Or) https://sunriise.straw.page/
