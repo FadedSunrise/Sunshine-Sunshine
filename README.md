@@ -28,7 +28,8 @@ ________________________________________________________________________________
 ⋆ Here's for more informations about myself and my fandoms ! ~ ♡
 
 ↳ https://meet-sunrise.carrd.co/
-(Or/And) https://fadedsunrise.straw.page/
+https://fadedsunrise.straw.page/
+https://pronouns.cc/@Sunrise.
 
 _____________________________________
 
